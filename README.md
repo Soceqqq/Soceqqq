@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @Soceqqq
+- 👋 Hi, I’m SoceQ
